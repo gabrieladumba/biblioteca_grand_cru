@@ -1,1 +1,0 @@
-# biblioteca_grand_cru
